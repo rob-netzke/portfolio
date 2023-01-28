@@ -1,2 +1,2 @@
-https://www.robnetzke.xyz
+https://robnetzke.xyz
 
